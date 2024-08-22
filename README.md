@@ -1,2 +1,3 @@
+![¡ SPLIT FANART _D !](https://github.com/user-attachments/assets/7cdbfdd0-0ea2-4e17-bacc-df82f4ce1363)
 
-![GVgwZCWbIAEhsm5](https://github.com/user-attachments/assets/3546bb2c-1ece-4062-90c1-95ad0e516685)
+
